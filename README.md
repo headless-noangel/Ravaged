@@ -229,4 +229,4 @@ Ravaged is the complete free version available for download, with all features a
 Download Ravaged today and immerse yourself in a world of action and survival! Enjoy the thrill and excitement that awaits you in this epic multiplayer shooter!
 
 ---
-**Last updated:** 2026-11-01 15:37:00 UTC
+**Last updated:** 2026-11-01 19:59:09 UTC
